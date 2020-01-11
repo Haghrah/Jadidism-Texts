@@ -1,4 +1,4 @@
 # Jadidism-Texts
 Some texts written by Jadids ...
 
-If you need text versions of pdf files, contact me.
+If you need text version of pdf files, contact me.
